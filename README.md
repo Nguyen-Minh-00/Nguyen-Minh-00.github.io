@@ -1,1 +1,1 @@
-Created by Jimmy-Blue
+Created by [Jimmy-Blue](https://blue.is-a.dev).
